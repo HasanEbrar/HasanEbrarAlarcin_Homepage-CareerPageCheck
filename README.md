@@ -1,1 +1,1 @@
-# HasanEbrarAlarcin_Homepage-CareerPageCheck
+# HasanEbrarAlarcin_HomePage-CareerPageCheck
